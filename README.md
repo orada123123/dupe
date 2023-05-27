@@ -1,2 +1,2 @@
-# dupe
-https://pastebin.com/raw/mPTjabTb
+# MukroHub
+https://pastebin.com/raw/AYvgcM6q
